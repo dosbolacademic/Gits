@@ -1,3 +1,5 @@
 ﻿# NEW ERA is began
  # GOOD BRO
- # SYIMEK
+ # SYIMEK 
+
+ # Nurbek KOT
